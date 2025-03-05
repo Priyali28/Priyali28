@@ -1,3 +1,8 @@
+# 👋 Hi, I'm Priyali Tambe!  
+🚀 Aspiring Data Scientist | 📊 Data Enthusiast | 🏥 Healthcare Analytics  
+
+
+📫 **Email:** priyalitambe2021@gmail.com   
 
 
 <!--
